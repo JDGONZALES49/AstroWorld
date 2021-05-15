@@ -1,2 +1,2 @@
 # AstroWorld
-Turning these mfkz into blue Smurfs.
+https://UnitedMasters.com/m/AstroWorld
